@@ -6,7 +6,8 @@
 
 ﹏ 𝙶𝚘 𝚝𝚘 𝚖𝚢 𝚕𝚒𝚗𝚔𝚜 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚖𝚘𝚛𝚎 𝙰𝚋𝚘𝚞 𝚖𝚎 ^_^ !!
 
-![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/5a1335b5-4b0f-4038-9b88-05bb80fcb5e8)
+![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/7d6e782d-dda2-4ebd-8d28-d6305ddd5be7)
+
 
 
 

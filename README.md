@@ -2,9 +2,10 @@
  
 . 𝙰𝚕𝚠𝚊𝚢𝚜 𝚒𝚗 𝚝𝚑𝚎 𝚂𝚃𝙷, 𝚂𝙼 𝚊𝚗𝚍 𝙵𝙽𝙵 𝚊𝚛𝚎𝚊 ✦ 𝙲 + 𝙷 𝚊𝚛𝚎 𝚊𝚕𝚕𝚘𝚠𝚎𝚍! イ 
 
-﹏ 𝙶𝚘 𝚝𝚘 𝚖𝚢 𝚕𝚒𝚗𝚔𝚜 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚖𝚘𝚛𝚎 𝙰𝚋𝚘𝚞 𝚖𝚎 ^_^ !!
+﹏ 𝙶𝚘 𝚝𝚘 𝚖𝚢 𝚕𝚒𝚗𝚔𝚜 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚖𝚘𝚛𝚎 𝙰𝚋𝚘𝚞𝚝 𝚖𝚎 ^_^ !!
 
-![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/7d6e782d-dda2-4ebd-8d28-d6305ddd5be7)
+![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/fac15c9d-ce4f-4bef-b353-90c9b59e0623)
+
 
 <!---
 Flamesiii/Flamesiii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,5 +1,8 @@
 # **HI, FEEL FREE TO INT WITH ME  <3**
 
+![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/269220c7-7a9e-4631-937a-98ec2e2a7eea)
+
+
 ![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/d0f3cfcf-b249-458b-a171-5c271aa1c545) 
 𝙍𝙀𝘼𝘿 𝙈𝙔 𝙎𝙏𝙍𝘼𝙒 𝙋𝘼𝙂𝙀 𝙁𝙊𝙍 𝙈𝙊𝙍𝙀 𝙄𝙉𝙁𝙊!
 

@@ -16,7 +16,7 @@
 *stop calling me gay guys, im not!!...* ![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/b498160b-7a15-4dca-8b2b-5d8d297ff3f3) <-- *ANYGAYS ME FR !!*
 
 ![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/1efee338-b914-48e1-adf4-0824d306a332)
-![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/95ce8875-1d9b-491e-af3c-3c4683934840)
+![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/8f0cc709-1242-48eb-8a41-f43cb5e38d05)
 ![image](https://github.com/Flamesiii/Flamesiii/assets/134642966/4d3d4bf8-e284-4973-b8f7-e436a621d638)
 
 
